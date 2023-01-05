@@ -1,1 +1,1 @@
-# Striver_CP_Sheet
+# Striver CP Sheet
